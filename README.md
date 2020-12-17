@@ -1,1 +1,1 @@
-# enthusiastic-AI-learner
+# Enthusiastic-AI-Learner
